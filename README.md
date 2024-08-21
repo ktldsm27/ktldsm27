@@ -2,4 +2,4 @@
 
 📫 How to reach me? Message me: skledesma27@gmail.com
 
-👤 Curriculum Vitae: https://ktldsm27.github.io/ktldsmcvresume/
+👤 Curriculum Vitae: https://imgur.com/gallery/resume-87oHx5T
